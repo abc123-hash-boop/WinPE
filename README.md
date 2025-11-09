@@ -22,4 +22,6 @@
 
 <img width="1023" height="764" alt="{AF4B5BFD-834F-47DA-A916-F657CD8913E4}" src="https://github.com/user-attachments/assets/c3101c93-a8d9-409e-a834-622ed84d17ac" />
 
-行了，自己摸索
+不说了各位，自己摸索吧:)
+
+<img width="1022" height="776" alt="{8C806617-C936-4068-AE5E-A529DEC403C0}" src="https://github.com/user-attachments/assets/16e9485e-20db-43a3-9b41-3470d9528d79" />
